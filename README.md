@@ -1,2 +1,1 @@
-# ashraf2047.github.io
-My website
+# Ash Raji. Thinking out loud.
